@@ -1,1 +1,1 @@
-# ainotart
+Just wanted to make a quick informational project on some of my thoughts! I strongly believe that it feels like the artists are calling out for this one, because it is important to discuss the topic of AI stealing our spotlight. It was nice to be able to just relax and write stuff :) There isn't really much to do here, but just click on the titles to expand info ig.
